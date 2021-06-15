@@ -1,1 +1,0 @@
-Boating is what a boat is about.
